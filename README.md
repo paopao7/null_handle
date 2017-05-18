@@ -71,16 +71,9 @@ null_handle($data,”kong”)
 
 本人QQ：980569038
 
-也可以扫码本人微信：
-
-![image](http://www.itinfor.cn/wp-content/uploads/2017/04/微信图片_20170518101335.jpg)
+也可以添加本人微信：hppwz626
 
 若该文章对您有一定帮助，欢迎打赏
-![image](http://www.itinfor.cn/wp-content/uploads/2017/04/微信图片_20170518101700-577x1024.png)
-![image](http://www.itinfor.cn/wp-content/uploads/2017/04/微信图片_20170518101629.jpg)
-![image](http://www.itinfor.cn/wp-content/uploads/2017/04/微信图片_20170518101625-1-754x1024.jpg)
-
-（点击图片可放大）
 
 本人原创，转载请注明出处
 
